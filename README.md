@@ -1,2 +1,0 @@
-# cardplayersunite.com
-cardplayersunite.com
